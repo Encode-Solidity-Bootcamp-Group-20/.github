@@ -1,4 +1,4 @@
-## Weeekend Project 👋
+## Weeekend Projects 👋
 
 <!--
 
